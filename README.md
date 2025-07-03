@@ -21,6 +21,6 @@
 
 🔗 Meus contatos:
 - LinkedIn: www.linkedin.com/in/felipe-matheus-merinho
-- Email: felipe_matheus207@hotmail.com
+- Email: felipematheusmerinho@gmail.com
 
 ✨ Todo especialista um dia foi iniciante. O importante é nunca parar de evoluir.
